@@ -1,6 +1,6 @@
 # Salveee, Meu nome é Rhandres
 
-Oii, Eu sou de Paraíso do Sul do Estado Rio Grande do Sul , Eu curso Informática no CTISM-UFSM  desde 2021. 👨🏽‍💻
+Oii, Eu sou de Paraíso do Sul do Estado Rio Grande do Sul ,E eu curso Informática no CTISM-UFSM  desde 2021. 👨🏽‍💻
 
 #### Segue la padrin ! 😳
 - [![Instagram Badge](https://img.shields.io/badge/-Instagram-blue?style=flat-square&logo=Instagram&logoColor=white&link=https://www.instagram.com/rhandres24/)](https://www.instagram.com/rhandres24/)
