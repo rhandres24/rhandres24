@@ -1,6 +1,7 @@
 # Salveee Gurizadaaaa
 
 Oii, Eu sou de Paraíso do Sul do Estado do Rio Grande do Sul ,E eu curso Informática no CTISM-UFSM  desde 2021. 👨🏽‍💻
+
 Nada mais nada menos que plat 2 no vavazin poucas!
 
 #### Segue la padrin ! 😳
